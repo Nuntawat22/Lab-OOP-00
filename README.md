@@ -1,6 +1,4 @@
 # Lab-OOP-00
-my name is nuntawat seahuam
+my name is nuntawat Seahuam
 653450510-0
-
-moragon awda
-24694829-9
+Email nuntawat.s@kkumail.com
